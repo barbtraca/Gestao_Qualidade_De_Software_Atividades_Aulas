@@ -1,1 +1,0 @@
-# Gestao_Qualidade_De_Software_Atividades_Aulas
